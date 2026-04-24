@@ -18,7 +18,7 @@ Learning vocabulary and simple sentence structures
 📈 Current Focus
 Improving English for professional communication
 Expanding German vocabulary
-Maintaining Spanish comprehension
+Maintaining Spanish comprehension.
 💬 About Me
 
-I enjoy learning languages and using them to connect with different cultures and contexts.
+I enjoy learning languages and using them to connect with different cultures and contexts
